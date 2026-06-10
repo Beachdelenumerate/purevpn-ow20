@@ -1,4 +1,4 @@
-
+Get the ultimate PureVPN app with PureVPN secure App: DNS-leak-protection & VPN-over-TOR. Featuring DNS-leak-protection and VPN-over-TOR, it's the best choice for secure and
 
 
 
